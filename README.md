@@ -1,4 +1,4 @@
-### Hi there 👋
+### i can't code for shit but thanks for stopping by
 
 <!--
 **geri666/geri666** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
